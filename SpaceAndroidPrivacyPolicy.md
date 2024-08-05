@@ -20,6 +20,6 @@ If you are not having results uploaded to the leaderboard, your jumps, deaths an
 ## Concerns
 If you have any concerns, feel free to contact me at my email address **leighhurley966@gmail.com**
 
-**Leigh Hurley
+**Leigh Hurley**
 
-05/08/2024**
+**05/08/2024**
